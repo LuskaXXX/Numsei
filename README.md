@@ -1,2 +1,2 @@
 # Numsei
-treinando nessa bomba de script
+treinando nessa bomba de script // Faco medicina
